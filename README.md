@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Cresovell
+- 👀 I’m interested in learning everything;
+- 🌱 I’m currently learning to program and several IT subjects.
+- 💞️ I’m looking to collaborate on gaming development and/or mobile development;
+- 📫 You can reach me through here or any of my social pages only by searching for my family name: Cresovell 
